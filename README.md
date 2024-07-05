@@ -23,4 +23,17 @@ https://github.com/NAIST-SE/AttractingContributors/discussions/4 (Discussion)
 # What is your favorite Pokémon?
 What is your favorite Pokémon?
 1. Venosour
-2. Pikatyu
+2. Lapras
+2. garchomp
+2. Eevee
+2. Pichu
+2. Dageki (Pokemon Black & White)
+2. Pikachu
+2. Raichu
+2. Mimikkyu
+2. Fuecoco 🔥
+2. Snorlax
+2. KOKOON
+2. Mewtwo 
+2. Klinklang
+4. Charizar
