@@ -37,4 +37,3 @@ What is your favorite Pokémon?
 2. Mewtwo 
 2. Klinklang
 4. Charizar
-
