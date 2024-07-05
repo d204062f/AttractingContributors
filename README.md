@@ -38,4 +38,3 @@ What is your favorite Pokémon?
 2. Klinklang
 4. Charizar
 
-
